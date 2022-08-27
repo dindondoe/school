@@ -1,1 +1,2 @@
-probably not meant for you
+hello,
+gand maralo aur padhai mein lag jayo.
